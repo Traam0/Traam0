@@ -5,6 +5,7 @@
 - 📫 How to reach me ? you can reach me by :
         -Textin me on whatsapp : +212706709116 
         -DM me on instgram : @traam.u
+        -DM me on Discord : Trãam#6359
         
 
 <!---
